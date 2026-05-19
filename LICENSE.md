@@ -1,4 +1,4 @@
-# 
+# rare Adobe Photoshop para PC addons es el mejor Adobe Photoshop para PC addons con estilos de objeto y texturizado. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
